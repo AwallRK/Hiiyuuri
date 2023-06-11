@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Hiiyuuri
+- 👋 Hi, I’m @AwallRK
 - 👀 I’m interested in Anime, Manga, Learn New Things, Tech
 - 🌱 I’m currently learning Coding
 - 💞️ I’m looking to collaborate on making new project
